@@ -10,10 +10,10 @@ I remember no lyric. I remember no tune.\
 I just remember,\
 that I am the ocean and she is the moon
 
-I just wanna sing\
 To tell her how much I love her\
+That she's on the top, none above her\
 That she is my need\
-And to do that, I need no musical sheet
+And to do that, I need no beat
 
 I love her to moon and back\
 And if there is farther than that\
